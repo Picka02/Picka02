@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Picka02
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning
 - 📫 How to reach me only here
